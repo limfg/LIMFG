@@ -10,7 +10,7 @@ Create your own luck
 
 #### Hello 👏
 
-> I'm good at lying flat. [vscode_deno](https://github.com/limfg).\
+> I'm good at lying flat. [‘😘’](https://github.com/limfg).\
 > The veteran screwdriver expert in the factory.
 
 🔗 https:Will appear on your profile!
