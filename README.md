@@ -13,5 +13,5 @@ Create your own luck
 > I'm good at lying flat. [‘😘’](https://github.com/limfg).\
 > The veteran screwdriver expert in the factory.
 
-🔗 https:Will appear on your profile!
+🔗 https://Dry your tears and don't ask who I am.!
 
