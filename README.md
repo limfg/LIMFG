@@ -10,8 +10,8 @@ Create your own luck
 
 #### Hello 👏
 
-> I'm the creator of [vscode_deno](https://github.com/denoland/vscode_deno).\
-> Currently a contributor to Deno.
+> I'm good at lying flat. [vscode_deno](https://github.com/limfg).\
+> The veteran screwdriver expert in the factory.
 
 🔗 https:Will appear on your profile!
 
